@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **devaviswa15@gmail.com**
 
-- 📄 Know about my experiences <a href="https://drive.google.com/file/d/18BXRHOulDd2KZNud2s--krxg6jLDLyJV/view?usp=drive_link">Resume</a>
+- 📄 Know about my experiences <a href="[https://drive.google.com/file/d/18BXRHOulDd2KZNud2s--krxg6jLDLyJV/view?usp=drive_link](https://drive.google.com/file/d/1Zg6X2gZTVx8wGy_niDuzJtH-3OpafMmb/view?usp=drive_link)">Resume</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
